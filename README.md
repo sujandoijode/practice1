@@ -1,2 +1,5 @@
 # practice1
-practice
+practice 
+sujan doijode 
+bhadravathi 
+shimogga 
